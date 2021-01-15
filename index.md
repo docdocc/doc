@@ -1,11 +1,11 @@
-<p>2021/1/11 网址不定期更新，连不上时，请不同时间再试试。
+<p>2021/1/15 网址不定期更新，连不上时，请不同时间再试试。
 <p>• 建议用谷歌或火狐官方浏览器访问。
 <p>◎ • 视 频： 
 <a href="http://puo.hdfmradio.com/" target="_blank">网址一</a> 　 
 <a href="http://pte.hdfmradio.com/" target="_blank">网址二</a> 　 
 <a href="http://pte.hdfmradio.com/b.html" target="_blank">网址三</a>
 <a href="https://yadi.sk/d/d0sUeAOpal3njw" target="_blank">　• 云下载 </a></p>
-<p>◆ new! 分 享 网 址（* 请 收 藏）：• <a href="http://pru.hdfmradio.com/a.html">https://d.itpc.cf</a></p>
+<p>◆ new! 分 享 网 址（* 请 收 藏）：• <a href="http://prv.hdfmradio.com/a.html">https://d.itpc.cf</a></p>
 
 <p>◎ • 小 站：  
 <a href="http://puo.hdfmradio.com/f.html" target="_blank">网址一</a> 　 
