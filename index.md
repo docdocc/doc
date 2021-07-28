@@ -6,7 +6,7 @@
 <a href="http://pah.hdfmradio.com/" target="_blank">网址二</a> 　 
 <a href="http://pbh.hdfmradio.com/b.html" target="_blank">网址三</a>
 <a href="https://disk.yandex.ru/d/wIUK0uxc3Gk4Ng" target="_blank">　• 云下载 </a></p>
-<p>◆ new! 分 享 网 址（ d.spps.shop  请 收 藏）</p>
+<p>◆ new! 分 享 网 址（ d.ress.rest	请 收 藏）</p>
 
 <p>◎ • 小 站：  
 <a href="http://pch.hdfmradio.com/f.html" target="_blank">网址一</a> 　 
