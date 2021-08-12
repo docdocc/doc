@@ -1,50 +1,50 @@
-<p>2020/08/06
+<p>2020/08/13
 <p>• 网址不定期更新，连不上时，请不同时间再试试。
 <p>• 建议用谷歌或火狐官方浏览器访问。
 <p>◎ • 视 频： 
-<a href="http://pcj.hdfmradio.com/" target="_blank">网址一</a> 　 
-<a href="http://paj.hdfmradio.com/" target="_blank">网址二</a> 　 
-<a href="http://pbj.hdfmradio.com/b.html" target="_blank">网址三</a>
+<a href="http://pck.hdfmradio.com/" target="_blank">网址一</a> 　 
+<a href="http://pak.hdfmradio.com/" target="_blank">网址二</a> 　 
+<a href="http://pbk.hdfmradio.com/b.html" target="_blank">网址三</a>
 <a href="https://disk.yandex.ru/d/wIUK0uxc3Gk4Ng" target="_blank">　• 云下载 </a></p>
 <p>◆ new! 分 享 网 址（ d.ress.rest	请 收 藏）</p>
 
 <p>◎ • 小 站：  
-<a href="http://pcj.hdfmradio.com/f.html" target="_blank">网址一</a> 　 
-<a href="http://paj.hdfmradio.com/h.html" target="_blank">网址二</a> 　 
-<a href="http://pbj.hdfmradio.com/k/" target="_blank">网址三</a></p>
+<a href="http://pck.hdfmradio.com/f.html" target="_blank">网址一</a> 　 
+<a href="http://pak.hdfmradio.com/h.html" target="_blank">网址二</a> 　 
+<a href="http://pbk.hdfmradio.com/k/" target="_blank">网址三</a></p>
 <p>◎ • 翻 墙 软 件 ：  
-<a href="http://pcj.hdfmradio.com/ff/" target="_blank">网址一</a> 　 
-<a href="http://paj.hdfmradio.com/s/read/a1_nd.html" target="_blank">网址二</a> 　 
-<a href="http://pbj.hdfmradio.com/ff/index.html" target="_blank">网址三</a></p>
+<a href="http://pck.hdfmradio.com/ff/" target="_blank">网址一</a> 　 
+<a href="http://pak.hdfmradio.com/s/read/a1_nd.html" target="_blank">网址二</a> 　 
+<a href="http://pbk.hdfmradio.com/ff/index.html" target="_blank">网址三</a></p>
 <p>◎ • 每 日 新 闻：  
-<a href="http://pcj.hdfmradio.com/day/" target="_blank">网址一</a> 　 
-<a href="http://paj.hdfmradio.com/day/" target="_blank">网址二</a> 　 
-<a href="http://pbj.hdfmradio.com/day/index.html" target="_blank">网址三</a></p>
+<a href="http://pck.hdfmradio.com/day/" target="_blank">网址一</a> 　 
+<a href="http://pak.hdfmradio.com/day/" target="_blank">网址二</a> 　 
+<a href="http://pbk.hdfmradio.com/day/index.html" target="_blank">网址三</a></p>
 <p>◎ • 短 波 分 享：  
-<a href="http://pcj.hdfmradio.com/h/" target="_blank">网址一</a> 　 
-<a href="http://pbj.hdfmradio.com/h/" target="_blank">网址二</a> 　 
-<a href="http://paj.hdfmradio.com/h/index.html" target="_blank">网址三</a></p>
+<a href="http://pck.hdfmradio.com/h/" target="_blank">网址一</a> 　 
+<a href="http://pbk.hdfmradio.com/h/" target="_blank">网址二</a> 　 
+<a href="http://pak.hdfmradio.com/h/index.html" target="_blank">网址三</a></p>
 <p>◎ • 九 评.三 退：  
-<a href="http://pcj.hdfmradio.com/t/" target="_blank">网址一</a> 　 
-<a href="http://paj.hdfmradio.com/v2/index.html" target="_blank">网址二</a> 　 
-<a href="http://pbj.hdfmradio.com/tt/index.html" target="_blank">网址三</a> 　</p>
+<a href="http://pck.hdfmradio.com/t/" target="_blank">网址一</a> 　 
+<a href="http://pak.hdfmradio.com/v2/index.html" target="_blank">网址二</a> 　 
+<a href="http://pbk.hdfmradio.com/tt/index.html" target="_blank">网址三</a> 　</p>
 <p>◎ • (E2_视频/语音)《九 评》视频/语音: 
-<a href="http://paj.hdfmradio.com/7738.html" target="_blank">网址一</a> 　 
-<a href="http://pcj.hdfmradio.com/7614.html" target="_blank">网址二</a> 　 
-<a href="http://pbj.hdfmradio.com/7633.html" target="_blank">网址三</a></p>
+<a href="http://pak.hdfmradio.com/7738.html" target="_blank">网址一</a> 　 
+<a href="http://pck.hdfmradio.com/7614.html" target="_blank">网址二</a> 　 
+<a href="http://pbk.hdfmradio.com/7633.html" target="_blank">网址三</a></p>
 <p>◎ • 三 退 管 道...退 党 网：  
-<a href="http://pcj.hdfmradio.com/go/td1.html" target="_blank">网址一</a> 　 
-<a href="http://paj.hdfmradio.com/go/td2.html" target="_blank">网址二</a> 　 
-<a href="http://pbj.hdfmradio.com/go/td3.html" target="_blank">网址三</a></p>
+<a href="http://pck.hdfmradio.com/go/td1.html" target="_blank">网址一</a> 　 
+<a href="http://pak.hdfmradio.com/go/td2.html" target="_blank">网址二</a> 　 
+<a href="http://pbk.hdfmradio.com/go/td3.html" target="_blank">网址三</a></p>
 <p>◎ • (F1) 三 退 管 道(一)： 
-<a href="http://pcj.hdfmradio.com/dd/" target="_blank">网址一</a> 　 
-<a href="http://paj.hdfmradio.com/s/read/a1_tdx.html" target="_blank">网址二</a> 　 
-<a href="http://pbj.hdfmradio.com/dd/" target="_blank">网址三</a></p>
+<a href="http://pck.hdfmradio.com/dd/" target="_blank">网址一</a> 　 
+<a href="http://pak.hdfmradio.com/s/read/a1_tdx.html" target="_blank">网址二</a> 　 
+<a href="http://pbk.hdfmradio.com/dd/" target="_blank">网址三</a></p>
 <p>◎ • (F2)三 退 管 道(二)： 
-<a href="http://paj.hdfmradio.com/d/" target="_blank">网址一</a> 　 
-<a href="http://pcj.hdfmradio.com/d/index.html" target="_blank">网址二</a> 　 
-<a href="http://pbj.hdfmradio.com/d/" target="_blank">网址三</a></p>
+<a href="http://pak.hdfmradio.com/d/" target="_blank">网址一</a> 　 
+<a href="http://pck.hdfmradio.com/d/index.html" target="_blank">网址二</a> 　 
+<a href="http://pbk.hdfmradio.com/d/" target="_blank">网址三</a></p>
 <p>◎ • PDF电子书：  
-<a href="http://pcj.hdfmradio.com/p/" target="_blank">网址一</a> 　 
-<a href="http://paj.hdfmradio.com/p/index.html" target="_blank">网址二</a> 　 
-<a href="http://pbj.hdfmradio.com/p/" target="_blank">网址三</a></p>
+<a href="http://pck.hdfmradio.com/p/" target="_blank">网址一</a> 　 
+<a href="http://pak.hdfmradio.com/p/index.html" target="_blank">网址二</a> 　 
+<a href="http://pbk.hdfmradio.com/p/" target="_blank">网址三</a></p>
